@@ -59,4 +59,4 @@ Thank you for visiting this repository! Feel free to explore the project files a
 ## Contact
 
 - **LinkedIn**: [LinkedIn Profile](https://www.linkedin.com/in/nupur-gupta28/)
-- **Email**: (nupurgupta0228@gmail.com)
+- **Email**: [Email](nupurgupta0228@gmail.com)
